@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @vloydd
--tg: vloyder
+-tg: vloyd
 everyrthing made by myself
